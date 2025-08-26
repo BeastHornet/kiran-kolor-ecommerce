@@ -34,4 +34,4 @@ For questions or collaboration, feel free to reach out!
 
 ---
 
-*Created by [Your Name](https://github.com/YourUsername)*  
+*Created by [S.G.](https://github.com/BeastHornet)*  
